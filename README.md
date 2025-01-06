@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on interesting projects
 - 📫 Feel free to shoot me an email
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I first got started writing code with Apple Basic back on a IIgs at school when I was ten years old, and I haven’t looked back since.
+- ⚡ Fun fact: I first got started writing code with Apple Basic back on a IIgs at school when I was ten years old, and I haven’t looked back since
